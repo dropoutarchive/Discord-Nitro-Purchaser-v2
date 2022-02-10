@@ -1,2 +1,1 @@
-# Discord-Nitro-Purchaser-v2
-no need to explain
+![Preview](https://egirl.rip/PF8FYFjdK2.png?key=MCUAbfcjONcVW9)
